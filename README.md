@@ -1,0 +1,2 @@
+# premium-lacq-maki-001-maki-e-technique-reference-tem
+You're juggling scattered notes on maki-e techniques across notebooks, PDFs, and half-remembered workshop lessons—losing the thread between gold-dust application methods and urushi layering secrets. The Maki-e Technique Reference Template solves this by centralizing every technique variation, material note, and visual reference you need in one sear
